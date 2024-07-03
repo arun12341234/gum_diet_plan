@@ -45,7 +45,7 @@
 ## Dinner
 **7:00 PM**
 - **Meal**:
-  - Baked salmon or lean beef.
+  - Grilled chicken breast or tofu.
   - Sweet potato or whole grain bread.
   - Large portion of mixed vegetables (roasted or steamed).
   - Small portion of avocado or a tablespoon of olive oil.
